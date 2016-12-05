@@ -1,0 +1,2 @@
+# helped-needed-asap
+Don't ask a DBA to help you move furniture. They've been known to drop tables. - Did you get it?? if you did i need you Urgent Requirement for Oracle DBA, UNIX DBA and a Backup Administrator - 6 month contracts (could go longer) - €450 per day - Based in Dublin City Centre- At this time i can only look at candidates who have full eligibility to work in Ireland (Stamp 4/EU citizenship). Email me at amy.corr@manpower.ie for immediate consideration
